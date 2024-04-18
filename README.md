@@ -1,0 +1,2 @@
+# Sadri
+Nima gaplar 
